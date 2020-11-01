@@ -91,5 +91,12 @@ That was our coping phrase. We went through a seven-and-a-half month phase where
 
 You might not feel like you've enjoyed any of it. Look back at some nice photos and videos. I guarantee\** there are happy memories in there.
 
+### Stop caring
+
+Maybe don't do this _too_ often, but if baby is asleep or being looked after by your partner, just forget you're a parent for a while.
+
+---
+
 **\*NOT PROFESSIONAL ADVICE!**
+
 _\**not actually guaranteed_
