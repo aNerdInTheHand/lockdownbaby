@@ -67,4 +67,29 @@ It's never good anyway, is it?
 
 I'm not advocating looking for loopholes that allow you to go for pints with your mates. We should all do our bit to contain the virus. But make sure you're up to date with your local rules, and if they allow you to meet a friend in a park or garden, do it. Especially if you know other people with kids. You might think you can't be bothered, but you'll probably feel better for it.
 
+### Hate it
+
+It was something of an epiphany when I realised I was allowed to hate what we were going through. I'd been trying to keep a stiff upper lip and convince my wife everything was imminently going to get so much better when one day I just gave up. It sounds depressing (and probably is), but at least the pressure was off. I wouldn't advocate going on about this to your partner, but I don't think there's any harm in admitting to yourself every once in a while "bloody hell, I hate parenting".
+
+### Get a support group
+
+If you've been part of something like the NCT courses then you've got a ready-made support group - don't be afraid to use it. Friends with babies are also good, though I've _tried_ to not moan too much to them (Ben, Mike, feel free to call bullshit on this) as they're going through their own version of parenting hell. And of course, your family should always be good for a pick-me-up. Which brings me to my next point...
+
+### Share the bad times
+
+There came a point when we had to stop shielding our family from what an awful time we were having, though we didn't want to worry them. But my wife got so upset at all the messages proclaiming what a lovely boy we had and what a great time we were having with him and what a wonderful job we were doing. And it was only natural that our family assumed this was true - we were sending them photos of smiles, videos of happy gurgles and giggles, despite these making up maybe five minutes of a day in which we'd had eight hours of crying. So we started sending a more representative sample of what we were going through.
+
+### Keep going
+
+This might not seem helpful. But sometimes you've just got to channel your inner SAS and say to yourself: "This is absolute hell. I haven't slept in 30 hours and the baby has been crying for eight. No help is coming. I am going to have to suck it up and get on with it because there is no other choice." Because - and this was the one thing we **hated** hearing more than anything on the bad days - it _does_ get better. Whatever is currently happening won't last forever. Because...
+
+### It's just a phase
+
+That was our coping phrase. We went through a seven-and-a-half month phase where we told ourselves this every month.
+
+### Appreciate the good bits
+
+You might not feel like you've enjoyed any of it. Look back at some nice photos and videos. I guarantee\** there are happy memories in there.
+
 **\*NOT PROFESSIONAL ADVICE!**
+_\**not actually guaranteed_
